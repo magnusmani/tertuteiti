@@ -1,0 +1,1 @@
+Efni úr Íslenskri nútímamálsorðabók, gefinni út af Árnastofnun, er birt hér. Halldóra Jónsdóttir og Þórdís Úlfarsdóttir eru höfundar og ritstjórar Íslenskrar nútímamálsorðabókar. Orðabókin er gefin út með CC BY-SA 4.0 leyfi og birt hér með þeim skilyrðum og skilmálum sem kveðið er á um í leyfinu.
